@@ -11,17 +11,19 @@ Location to log my genius hour work and learning.  This readme will be updated a
 ####Week 2 (Sept 25 - Oct 1)
 * I started my blog
 * Set a theme for the blog
-* decided on recipes
+* decided on recipes 
 
 ###Week 3 (Oct 2 - 8)
 * Changed the target audience to new cooks rather than students.
-* ​
+* I made food and clicked photos 
 
 ####Week 4 (Oct 9 - 15)
-* To follow
+* formated photos 
+* made more food
 
 ####Week 5 (Oct 16 - 22)
-* To follow
+* typed the recipes
+* made more food and clicked photos
 
 ####Week 6 (Oct 23 - 29)
 * To follow
