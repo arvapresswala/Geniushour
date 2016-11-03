@@ -26,10 +26,12 @@ Location to log my genius hour work and learning.  This readme will be updated a
 * made more food and clicked photos
 
 ####Week 6 (Oct 23 - 29)
-* To follow
+- Posted on the blog (not public yet)
+- edited photos 
+- cooked food 
 
 ####Week 7 (Oct 30 - Nov 5)
-* To follow
+- got the blog ready to make public
 
 ####Week 8 (Nov 6 - Nov 12)
 * To follow
