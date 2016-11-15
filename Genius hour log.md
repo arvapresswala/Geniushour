@@ -32,12 +32,13 @@ Location to log my genius hour work and learning.  This readme will be updated a
 
 ####Week 7 (Oct 30 - Nov 5)
 - got the blog ready to make public
+- made the blog public
 
 ####Week 8 (Nov 6 - Nov 12)
-* To follow
+* shared my link on different social media
 
 ####Week 9 (Nov 13 - Nov 19)
-* To follow
+* added more recipes
 
 ####Week 10 (Nov 20 - 26)
 * To follow
