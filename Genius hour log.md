@@ -47,4 +47,5 @@ Location to log my genius hour work and learning.  This readme will be updated a
 * ​
 
 ####Week 11 (Nov 27 - Dec 2)
-* To follow
+* Took some pictures and wrote the recipes.(havent posted them yet, there is still some editing left)
+* Prepared for the presentation
